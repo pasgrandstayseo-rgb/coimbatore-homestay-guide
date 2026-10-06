@@ -1,4 +1,5 @@
 # A Comfortable Home Stay Resort in Vadavalli for Your Coimbatore Visit
+<img width="1536" height="1024" alt="1 Best Home Stay Resort in Vadavalli" src="https://github.com/user-attachments/assets/52407818-89f9-4795-9c91-3e9d3f21ab83" />
 Planning to Visit Coimbatore?
 Coimbatore days can be long, with meetings, family visits and traffic to deal with. A quiet room at the end of it makes a real difference. The best home stay resort in Vadavalli gives you that, with the feel of a resort and the warmth of a home.
 Why Choose a Homestay?
